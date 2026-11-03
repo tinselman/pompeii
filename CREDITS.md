@@ -1,0 +1,156 @@
+# Credits
+
+## Photographs (Wikimedia Commons)
+
+Each is credited in the page beside the photograph. Licences as given on Commons.
+
+- **The Stew Pot On Its Tripod** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Caccabus_%28cooking_pot%29_on_a_tripod_%2851357506668%29.jpg
+- **A Red Platter, Knife Marks And All** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Terra_Sigillata_Platter_%2851357279476%29.jpg
+- **The Dinner Service Of The House Of Jupiter** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Bottle%2C_Jugs_and_Red_Ware_Plates_and_Bowls_for_the_Consumption_of_Food_-_Pompeii_Antiquarium.jpg
+- **Banquet Ware From The House Of Menander** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:House_of_Menander_Finds_-_Pompeii_Antiquarium.jpg
+- **The Cupboard Still Full** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cupboard_Cabinet_with_its_Contents_-_Pompeii_Antiquarium.jpg
+- **The Snack Bar Of Regio V** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Thermopolium_-_Pompeii_Scavi_%2854537661224%29.jpg
+- **Wine Jars On Their Rack** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Amphoras_storage_Herculaneum.jpg
+- **Scaurus' Best Fish Sauce** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Mosaic_panel_depicting_an_urceus_%28fish-sauce_bottle%29_Roman%2C_Pompeii%2C_House_of_Aulus_Umbricius_Scaurus_%2851358292490%29.jpg
+- **A Lamp To Flee By** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Mixed_Finds_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Portable Bar Stove** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Terracotta_Stove_%2851357279676%29.jpg
+- **Jars From Crete, Turkey And Gaul** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Finds_from_Across_the_Mediterranean_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Takings Hidden In A Jar** — Carole Raddato from FRANKFURT, Germany, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Thermopolium_of_Vetutius_Placidus_opening_directly_onto_the_south_side_of_the_Via_dell%27Abbondanza%2C_Pompeii_%2815042641332%29.jpg
+- **The Lamp On The Household Shrine** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Marble_Herm%2C_Oil_Lamp_and_Incense_Burner_from_Lararium_-_Pompeii_Antiquarium.jpg
+- **The Blue Vase** — Paolo Villa, CC BY 4.0. https://commons.wikimedia.org/wiki/File:02_10_2024_Photo_Paolo_Villa-Napoli-mann-Museo_Archeologico-FO232587-Arte_Romana-Blue_cameo_glas_vase_from_Pompeii-Vaso_in_vetro_blu_cammeo_da_Pompei-%2813521%29-maschera-misteri_dionisiaci-vino-musici-uccelli-eroti-tralci_di_vite.jpg
+- **Perfume Bottles Slumped By Heat** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Perfume_Containers_Distorted_by_the_Eruption_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Bowl Of Nails, Melted Shut** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Distorted_Bowl_and_Nails_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Glass From Ten Pompeii Kitchens** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Mixed_Kitchen_Ware_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Black Glass From A Volcano** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cups_with_Decoration_in_the_Egyptian_Style_%2849345337936%29.jpg
+- **A Fountain Niche Of Glass** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Roman_Mosaic_Niche_of_a_nymphaeum_with_Vietrea_paste_mosaics%2C_from_the_House_of_the_Skeleton_in_Herculaneum_%2848451810017%29.jpg
+- **A Blue Glass Jug** — Sailko, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Brocca_in_vetro_blu%2C_da_pompei.JPG
+- **A Mosaic-Glass Plate** — Sailko, CC BY 3.0. https://commons.wikimedia.org/wiki/File:Piatto_in_vetro_colorato%2C_da_pompei.JPG
+- **A Black Glass Cup With Inlays** — Sailko, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Coppa_in_vetro_nero_a_stampo_con_intarsi_policromi%2C_da_pompei.JPG
+- **A Painted And Gilded Glass Panel** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Painted_and_gilded_glass_tile%2C_from_Pompeii_%2848451450096%29.jpg
+- **A Speckled Glass Pourer** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Roman_Glass_Mottled_Askos_from_Pompeii_%2848451570242%29.jpg
+- **Perfume Bottles** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Unguentari_Pompeii_Boscoreale_Italy.jpg
+- **A Glass Jar For The Ashes Of The Dead** — Sailko, CC BY 3.0. https://commons.wikimedia.org/wiki/File:Olla_ansata_in_vetro_per_uso_come_cinerario%2C_da_pompei%2C_01.JPG
+- **The Garden Of The Fugitives** — Miguel Hermoso Cuesta, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Fuggiaschi_Pompeya_01.jpg
+- **The Chained Dog** — Giorgio Sommer (1834–1914), Public domain. https://commons.wikimedia.org/wiki/File:Giorgio_Sommer_%28Italian%2C_born_Germany_-_%28Cast_of_a_Dog_Killed_by_the_Eruption_of_Mount_Vesuvius%2C_Pompeii%29_-_Google_Art_Project.jpg
+- **The Muleteer** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Copy_of_a_Cast_of_a_Man_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Two Who Died Together** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Copy_of_a_Cast_of_Two_Victims_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Father With A Child** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cast_of_a_Man_with_a_Baby%2C_of_an_Adult_and_a_Baby_-_Pompeii_Antiquarium.jpg
+- **Fugitives At The Nocera Gate** — Fer.filol, Public domain. https://commons.wikimedia.org/wiki/File:Pompeya._Cad%C3%A1veres_en_Porta_Nocera.jpg
+- **The Last Fugitive** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Skeleton_of_a_Fugitive_Carrying_a_Bag_Containing_20_Coins_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Boathouses On The Beach** — Ad Meskens, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Herculaneum_Boat_Houses_with_Human_Skeletons_01.jpg
+- **The Lady Of Oplontis** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:The_Lady_of_Oplontis_%2851357506333%29.jpg
+- **The Pig At Villa Regina** — RealCarlo, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Calco_di_maiale_%28Boscoreale%29.jpg
+- **A Loaf From The House Of The Deer** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:A_loaf_of_carbonized_bread_%2851358291690%29.jpg
+- **Bread Left In Pompeii** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Ancient_roman_bread_Pompeii_Museum_Boscoreale.jpg
+- **Pomegranates: An Autumn Eruption** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Carbonised_Pomegranates_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Charred Hay** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Carbonised_Hay_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Figs In The Larder** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Carbonised_Figs_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Fish Sauce And Millet** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Fish_Sauce_%26_Millet_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Woman'S Treasure, Trapped By Pumice** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Jewels%2C_Gemstones_and_Coins_from_One_of_the_Victims_-_Pompeii_Antiquarium.jpg
+- **The Coins She Carried** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Coins_from_One_of_the_Victims_-_Pompeii_Antiquarium.jpg
+- **Luck In Her Pocket** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Statuette_and_Coins_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Rings Of The Fugitives** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Rings_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Strongbox Left Behind** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Arca_%28strongbox%29_with_applied_decoration_%2851356534977%29.jpg
+- **The Horse In The Stable** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cast_of_a_Horse_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Pots Full Of Pumice** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Pots_for_Boiling_Food_with_Lapilli_of_the_Eruption_-_Pompeii_Antiquarium.jpg
+- **More Pots With Pumice Inside** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Bronze_Pots_with_Laipilli_from_the_Eruption_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Cypress Grove By The River** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Trunk_of_Charred_Cypress_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Forum Under The Mountain** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii_Ruins_Forum_%28City_Business_Center%29_%26_Mt._Vesuvius_%2848440709246%29.jpg
+- **Via Dell'Abbondanza** — daryl_mitchell from Saskatoon, Saskatchewan, Canada, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Street_Vista_1_%2815722917598%29.jpg
+- **The Ancient Beach At Herculaneum** — Lucamato, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Ercolano_-_Panoramica_della_spiaggia.jpg
+- **Only A Hand'S Breadth Of Pumice** — Immanuel Friedlaender, Public domain. https://commons.wikimedia.org/wiki/File:ETH-BIB-Friedlaender-Herculanum%2C_oestlicher_Teil_der_Ausgrabungen_-_Bimssteinschicht_ca._15cm-Hs_1309-0005-038.tif
+- **Pillars Dug Out Of The Ash At Oplontis** — Tony Wirthlin, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Oplontis-1.jpg
+- **The Garden Today** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Garden_of_the_Fugitives_-_Pompeii_Scavi_%2849347300696%29.jpg
+- **Where The Blue Vase Was Found** — Mentnafunangann, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Tomba_del_Vaso_di_Vetro_Blu_%28Pompei%29_WLM_001.JPG
+- **Bread Left In The Oven** — Wknight94, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Pompeii_building_7.jpg
+- **The Wine Jars Of Villa Regina** — Carla Brain, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Villa_Regina_view_of_dolia_in_situ.jpg
+- **Store Jars In A Street-Corner Inn** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii_Ruins_Storage_Jars_%2848443375131%29.jpg
+- **A Bar'S Stove And Jars** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii_Ruins_Stove_and_Storage_Jars_%2848440579641%29.jpg
+- **Jars On A Shop Floor** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii%2C_Bottega_VI.10.10_%2848443811582%29.jpg
+- **A Bar With Jars In Its Counter** — Mary Harrsch, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Thermopolium_or_Bar_with_large_storage_wells_at_IX_1%2C8_Pompeii_Prowalk.jpg
+- **A Shop Counter With Its Jars** — Mary Harrsch, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Merchant%27s_counter_with_dolia_%28storage_jars%29_in_front_of_a_bakery_at_IX_1%2C3_Pompeii_Prowalk.jpg
+- **Fish Sauce From Spain, Label And All** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Finds_from_Across_the_Mediterranean_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno_-_49346904003.jpg
+- **Pots On The Fuller'S Hearth** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Fullery_of_Stephanus_-_Pompeii_Scavi_%2849346766358%29.jpg
+- **A Herculaneum Bar** — Bernard Gagnon, CC BY 4.0. https://commons.wikimedia.org/wiki/File:Thermopolium_%28VI._19.%29_%28Herculaneum%29.jpg
+- **A Bar On The Via Di Nola** — Mary Harrsch, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Thermopolium_in_Regio_5_Insula_1_Pompeii_Prowalk.jpg
+- **A Fountain Of Glass Mosaic** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Nymphaeum_Decorated_with_Garden_Scenes_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Two Who Fell On Top Of The Pumice** — Giorgio Sommer, CC0. https://commons.wikimedia.org/wiki/File:-Plaster_Casts_of_Bodies%2C_Pompeii-_MET_DP262064.jpg
+- **The First Casts, February 1863** — Robert Rive, Public domain. https://commons.wikimedia.org/wiki/File:Pompei_-_1243._Impronte_umane_trovate_al_5_febr._1863_Pompei_-_btv1b532785335_%281_of_2%29.jpg
+- **The Sleeping Man With His Key** — Giorgio Sommer, CC0. https://commons.wikimedia.org/wiki/File:1279_Impronte_umane_Scoverta_1873_%28titel_op_object%29_Versteend_lijk%2C_gevonden_te_Pompe%C3%AF_%28titel_op_object%29%2C_RP-F-2007-358-40.jpg
+- **A Woman Outside The Stabian Gate** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cast_of_a_Woman%2C_Supine_-_Pompeii_Antiquarium.jpg
+- **The Dead Of The Villa Of The Mysteries** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii_Ruins_Cast_of_Human_Victim_at_Villa_of_the_Mysteries_%2848445486616%29.jpg
+- **They Tried To Dig Their Way Out** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:House_of_Menander_-_Pompeii_Scavi_%2854537519496%29.jpg
+- **The Villa Where Eighteen Sheltered** — Yair Haklai, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Villa_di_Diomede_%28Pompeii%29-Garden.jpg
+- **The Gladiators' Barracks** — daryl_mitchell from Saskatoon, Saskatchewan, Canada, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Quadriporticus_1_%2815854512031%29.jpg
+- **Two Who Died Side By Side, 1863** — Robert Rive, Public domain. https://commons.wikimedia.org/wiki/File:N.%C2%B0_463._Impronte_umane._Pompei_-_btv1b53277443v_%281_of_2%29.jpg
+- **A Knife In Its Sheath** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Knife_with_Sheath_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Rings And A Lucky Charm** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Rings_and_Pendents_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Bracelets Of The Fugitives** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Six_Smooth_or_Twisted_Bracelets_%28Part_1%29_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **What The Lady Of Oplontis Carried** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Ori_di_Oplontis_-_The_Jewellery_Found_with_the_Lady_of_Oplontis_-_49822977022.jpg
+- **The Golden Bracelet** — Sailko, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Casa_del_bracciale_d%27oro%2C_bracciale_con_teste_di_serpente_che_reggono_disco_con_busto_di_selene%2C_I_secolo_dc.jpg
+- **The Silver Left In The Cellar** — Yair Haklai, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Tesoro_dalla_Casa_del_Menandro_%28Napoli%29.jpg
+- **Gold Armlets Left At Home** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Hemispherical_Armilae_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Boat On The Beach** — Phyrexian, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Ercolano_-_Scavi_archeologici_5094.jpg
+- **A Silver Mirror From A Farm Under The Volcano** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Mirror_with_Handle_in_the_Form_of_a_Club_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Lampstands For The Dark** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Bronze_Candlesticks_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **The Moralist'S Brazier** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Brazier_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Grill From The Vettii'S Kitchen** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Grill_with_handle_%28for_cooking_meat_and_fish%29_Roman%2C_Pompeii%2C_House_of_the_Vettii%2C_AD_1-79_%2851357506688%29.jpg
+- **A Hot-Water Urn For Dinner** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cylindrical_Food_Warmer_-_Pompeii_Antiquarium.jpg
+- **A Wooden Screen Turned To Charcoal** — Bernard Gagnon, CC BY 4.0. https://commons.wikimedia.org/wiki/File:Casa_del_Tramezzo_di_Legno_%28Herculaneum%29.jpg
+- **A Bed Turned To Charcoal** — AlMare, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Herculaneum_Casa_del_Tramezzo_di_Legno_Letto.jpg
+- **The Mills And Oven Of Popidius Priscus** — Carole Raddato, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:The_Pistrinum_%28bakery%29_on_Vicolo_Storto_%28Reg_VII%2C_Ins_2%2C_22%29_belonging_to_N._Popidius_Priscus%2C_Pompeii_%2814856682197%29.jpg
+- **A Herculaneum Baker'S Shop** — Mentnafunangann, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Botteghe_e_pistrinum_di_Sex._Patulcius_Felix_WLM23_001.JPG
+- **The Shape Of A Holm Oak** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Ointment_Jar%2C_Bowls_and_Oak_Impression_-_Pompeii_Antiquarium.jpg
+- **A Dining Couch From The Menander** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Triclinium_with_Applied_Decorations_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Via Di Mercurio And The Mountain** — Bruno Rijsman, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Via_di_Mercurio_%28Pompeii%29_looking_NNW_%2850543022433%29.jpg
+- **Vesuvius Over The Via Stabiana** — Wknight94, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Mount_Vesuvius_from_Pompeii_4.jpg
+- **From The Top Of The Theatre** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii%2C_View_from_Theater_over_Samnite_Palaestra_to_the_NW_%2848442177326%29.jpg
+- **The Road Out Of The Nocera Gate** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Porta_Nocera_Necropolis_-_Pompeii_Scavi_%2854536589122%29.jpg
+- **The Nocera Gate** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Porta_Nocera_Pompeii.jpg
+- **The Herculaneum Gate** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Porta_Herculaneum_Pompeii.jpg
+- **The Nola Gate From The Tombs** — Falk2, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:I08_192_Porta_di_Nola.jpg
+- **Down The Via Stabiana To The Gate** — Pierre André Leclercq, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Via_Stabiana_with_Porta_di_Stabia_in_Pompeii_2006.jpg
+- **The Street Of Tombs** — Aleksandr Zykov from Russia, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Pompei_%285630478189%29.jpg
+- **The Large Palaestra** — Dave & Margie Hill / Kleerup, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Large_Palaestra_%287238631174%29.jpg
+- **Herculaneum'S Main Street** — Ad Meskens, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Herculaneum_Decumanus_Maximus_02.jpg
+- **Cardo Iv, Herculaneum** — Ad Meskens, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Herculaneum_Cardo_IV_02.jpg
+- **The Amphitheatre'S Arena** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Pompeii_Ruins_Amphitheater_%2848443198356%29.jpg
+- **Herculaneum In Its Pit** — Mentnafunangann, CC BY-SA 3.0. https://commons.wikimedia.org/wiki/File:Veduta_di_Ercolano_4.JPG
+- **The Villa Of Poppaea In Its Pit** — CARLO ROMIS, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Panoramica_anno_2014_della_Villa_di_Poppea%2C_Oplonti.jpg
+- **The Garden Pool At Villa San Marco** — Carole Raddato, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:The_large_peristyle_of_Villa_San_Marco_containing_a_30m_long_garden_and_pool%2C_Stabiae%2C_Italy.jpg
+- **Vesuvius Before The Eruption** — ArchaiOptix, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Wall_painting_-_Dionysos_and_mount_Vesuvius_-_Pompeii_%28IX_8_6%29_-_Napoli_MAN_112286_-_02.jpg
+- **Beware Of The Dog** — Carole Raddato, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Cave_Cavem_mosaic_floor_in_the_vestibulum_of_the_House_of_the_Tragic_Poet%2C_Pompeii_%2814402122118%29.jpg
+- **Have: Welcome** — Marco Ebreo, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Ingresso_Casa_del_Fauno.jpg
+- **The Alexander Mosaic** — Lucas, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Alexander_Mosaic_%286000_x_3730%29.jpg
+- **The Hall Of The Mysteries** — Yair Haklai, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Villa_of_the_Mysteries_%28Pompeii%29_-_Hall_of_the_Mysteries_%28East_wall%29.jpg
+- **Cupids At Work In The House Of The Vettii** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:House_of_the_Vettii_-_Pompeii_Scavi_%2854536615667%29.jpg
+- **Terentius Neo And His Wife** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Roman_Fresco_of_Terentius_Neo_and_his_wife%2C_from_the_House_of_Terentius_Neo_in_Pompeii_%2848452074681%29.jpg
+- **The Riot At The Amphitheatre** — Chappsnet, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Fresco_depicting_the_riot_between_Pompeiians_and_Nucerians_in_the_Pompeii_amphitheater_in_59_CE.jpg
+- **Bread Handed Out** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Fresco_depicting_the_distribution_of_bread_%2851357279961%29.jpg
+- **A Painted Garden** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Fresco_from_a_garden_room_%28panel_1_of_3%29_%2851357507238%29.jpg
+- **A Painted Stage Set At Oplontis** — Amphipolis, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Oplontis_%E2%80%94_Oecus_%28panorama%29_%2814991766942%29.jpg
+- **The Rippled Floor** — Miguel Hermoso Cuesta, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Herculano_atrio_mosaico_02.jpg
+- **Neptune And Amphitrite In Glass** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Neptune_Amphitrite_mosaic_Herculaneum.jpg
+- **A Floor Of Cut Marble** — Jebulon, CC0. https://commons.wikimedia.org/wiki/File:Sectile_opus_pavement_House_of_the_Skeleton_Herculaneum.jpg
+- **A Floor Woven In Stone** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Basket_Weave_Patter_Floor_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **An Aqueduct On The Threshold** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:House_of_the_Silver_Wedding_-_Pompeii_Scavi_%2854537486526%29.jpg
+- **The Study Floor In The House Of The Ceii** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:House_of_the_Ceii_-_Pompeii_Scavi_%2854537534776%29.jpg
+- **A Tomb Never Finished** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Unfinished_Tomb_for_Two_Unknown_People_-_Pompeii_Scavi_%2849347267781%29.jpg
+- **The Earthquake Before The Eruption** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Relief_Showing_the_Effects_of_the_AD_63_Earthquake_in_the_Forum_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Kitchen Shrine At Terzigno** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Lararium_with_Altar_and_Niche%2C_Decorated_with_Domestic_Gods_and_Food_Offerings_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Still Lifes From The House Of The Deer** — ArchaiOptix, CC BY-SA 4.0. https://commons.wikimedia.org/wiki/File:Wall_painting_-_still_life_with_food_-_Herculaneum_%28IV_21%29_-_Napoli_MAN_8644.jpg
+- **The Phoenix Sign** — Tyler Bell, CC BY 2.0. https://commons.wikimedia.org/wiki/File:Phoenix_tavern_sign_%2851358014564%29.jpg
+- **Walls From An Upper Floor** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Walls_with_Architectonic_Motifs_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **Children'S Drawings On The Wall** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Wall_with_Graffiti_made_by_Children_-_Pompeii_e_Santorini-_L%27Eternita_e_un_Giorno.jpg
+- **A Panel Of Cameo Glass** — ho visto nina volare, CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Napoli%2C_museo_archeologico_-_Pannello_in_vetro-cammeo.jpg
+- **Columns Clad In Glass** — Gary Todd from Xinzheng, China, Public domain. https://commons.wikimedia.org/wiki/File:Glass_paste_mosaic_columns_from_House_of_Mosaic_Columns_in_Pompeii_%2848451658496%29.jpg
+- **A Triton In Glass** — Jamie Heath (Flickr: MumblerJamie), CC BY-SA 2.0. https://commons.wikimedia.org/wiki/File:Mosaic_Fragments_%2849344827888%29.jpg
+
+## Data
+
+- Map data © OpenStreetMap contributors, ODbL 1.0 (https://www.openstreetmap.org/copyright).
+- Elevation: Terrarium tiles, AWS Open Data (https://registry.opendata.aws/terrain-tiles/).
+
+## Sources
+
+The eruption's chronology, the victims and the survivors: see the panels in the page; volcanology after Sigurdsson et al. 1985, Cioni et al., Gurioli et al. 2007, Giacomelli et al. 2003, Mastrolorenzo et al. 2010, Pensa et al. 2023, Sparice et al. 2024, Scarpati et al. 2025; survivors after S. L. Tuck, *Escape from Pompeii* (OUP 2025); the Parco Archeologico di Pompei's press releases and E-Journal.
